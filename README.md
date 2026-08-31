@@ -3,6 +3,8 @@
 
 Наш дискорд канал (пробивы по ФИО, почтам, адресу, аккаунтам в соцсетях, крипто и т.д.) — https://discord.gg/zDNW39HKva
 
+Our Discord channel (searches by name, email, address, social media accounts, etc.) - https://discord.gg/NqTnM3sYZE
+
 Наш телеграм канал - осинт , мануалы по взломам камер , боты для пробива с бесплатными запросами , все это найдете тут https://t.me/wpftg
 
 ## Основные инструменты поиска по лицу
